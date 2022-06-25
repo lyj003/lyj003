@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @lyj003 
-- 📫 LinkedIn.com/lynnettejiang
+- 📫 https://www.linkedin.com/in/lynnette-jiang
